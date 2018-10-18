@@ -1,3 +1,3 @@
-# Jrester is beschte and has a small dick
+# Jrester is beschte
 
 Clone, fork and starr if you like it!
